@@ -1,1 +1,1 @@
-https://drive.google.com/drive/my-drive?hl=ru
+Учетная запись для ПК — логин: l.arkhipov, пароль: WnpZzEgt54
